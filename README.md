@@ -28,6 +28,7 @@ Nói sơ qua tình hình cháy, nổ ở Việt Nam.
 __(Sẽ bổ sung thêm từ các bạn =]] )__
 
 
+
 ### 2. Nguyên nhân
 Nói sơ qua tình hình chung cư tại Việt Nam
 
@@ -40,15 +41,18 @@ Dẫn chứng số liệu
 __(Sẽ bổ sung thêm từ các bạn =]] )__
 
 
+
 ### 3. Giải pháp (lý thuyết)
 Vài điều cơ bản cần nhớ để thoát khỏi nhà cao tầng
 
 __(Sẽ bổ sung thêm từ các bạn =]] )__
 
+
 ### 4. Giải pháp (thực hành)
 Một người hướng dẫn thực hành . . . 
 
 __(Sẽ bổ sung thêm từ các bạn =]] )__
+
 
 ### 5. Kết luận
 __(Sẽ bổ sung thêm từ các bạn =]] )__
