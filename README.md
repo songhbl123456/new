@@ -1,8 +1,9 @@
-```
-File text liệt kê nội dung trong powerpoint và nội dụng thuyết trình
-Chỉ là ý kiến cá nhân, nên mọi người ủng hộ thêm ý kiến
 
-```
+>File text liệt kê nội dung trong powerpoint và nội dụng thuyết trình
+>File powerpoint chỉ là placehole(lấp chỗ tạm thời, chờ thêm ý kiến sẽ thêm vào
+>Chỉ là ý kiến cá nhân, nên mọi người ủng hộ thêm ý kiến
+
+
 # THOÁT HIỂM KHI CÓ ĐÁM CHÁY Ở CHUNG CƯ
 
 ## Mục lục
