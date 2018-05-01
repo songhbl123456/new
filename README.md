@@ -49,6 +49,8 @@ __(Sẽ bổ sung thêm từ các bạn =]] )__
 ### 4. Giải pháp (thực hành)
 Một người hướng dẫn thực hành . . . 
 
+[Một vài hình ảnh hướng dẫn thực hành và trình chiếu trong lúc thực hành](http://dantri.com.vn/doi-song/chay-chung-cu-nhung-luu-y-tuyet-doi-phai-nho-de-cuu-song-ban-than-20180323143701911.htm)
+
 __(Sẽ bổ sung thêm từ các bạn =]] )__
 
 ### 5. Kết luận
