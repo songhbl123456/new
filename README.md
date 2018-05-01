@@ -22,22 +22,22 @@ Chỉ là ý kiến cá nhân, nên mọi người ủng hộ thêm ý kiến
 > Mỗi phần 1 người trình bày
 
 ### 1. Đặt vấn đề
-Nói sơ qua tình hình cháy, nổ ở Việt Nam.
+* Nói sơ qua tình hình cháy, nổ ở Việt Nam.
 
-Đưa ra số liệu thống kê
+* Đưa ra số liệu thống kê
 
 __(Sẽ bổ sung thêm từ các bạn =]] )__
 
 
 
 ### 2. Nguyên nhân
-Nói sơ qua tình hình chung cư tại Việt Nam
+* Nói sơ qua tình hình chung cư tại Việt Nam
 
-Dẫn chứng số liệu
+* Dẫn chứng số liệu
 
-Đưa ra một vài nguyên nhân về tình hình cháy chung cư từ đầu năm 2018 (cháy ở chung cư tăng trong năm 2018)
+* Đưa ra một vài nguyên nhân về tình hình cháy chung cư từ đầu năm 2018 (cháy ở chung cư tăng trong năm 2018)
 
-Đưa ra nguyên nhân đến từ các người dân (để nâng cao cảnh giác từ chính bản thân người ở)
+* Đưa ra nguyên nhân đến từ các người dân (để nâng cao cảnh giác từ chính bản thân người ở)
 
 __(Sẽ bổ sung thêm từ các bạn =]] )__
 
